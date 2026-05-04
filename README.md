@@ -1,6 +1,6 @@
 ![first banner](https://iili.io/qTHCXrg.png)
 
-![second banner w useful info](https://iili.io/qTHIdKP.png)
+![second banner w useful info](https://iili.io/BQTlYDg.png)
 #
 hawawa,,,
 
