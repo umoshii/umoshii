@@ -11,7 +11,7 @@
   </div>
 
   aka autumn ; amateur web/game developer and modder\
-  she/any ; 19yo ; smelly loser samoyed puppy girlfailure ; taken
+  she/any ; 19yo ; smelly loser samoyed puppy girlfailure
   
   #
 
